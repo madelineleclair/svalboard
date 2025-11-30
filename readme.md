@@ -1,0 +1,1 @@
+How to update firmware: https://docs.google.com/presentation/d/1GnWTA1rkspQECpYGpojspFwLH1Yve-2vgQR3afrVYJo/edit?slide=id.g303b5c10ad0_0_0#slide=id.g303b5c10ad0_0_0
